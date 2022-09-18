@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @omerz25
-- 🌱 I’m currently learning java skills
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me: @omerzein25@gmail.com
 
